@@ -2,7 +2,7 @@
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning something
 - 💞️ I’m looking to collaborate on some things
-- 📫 How to reach me, well, chr1stoph3rml@gmail.com
+- 📫 How to reach me? Not now
 
 <!---
 ChrisKE254/ChrisKE254 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
